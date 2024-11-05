@@ -1,2 +1,0 @@
-# muglabeyaz
-Muğla Beyaz Mermer
